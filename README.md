@@ -1,1 +1,1 @@
-# https-github.com-Saadattoori-Artificial-Intelligence-Quarter-2
+# Saadattoori-Artificial-Intelligence-Quarter-2
